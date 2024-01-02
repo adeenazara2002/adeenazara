@@ -1,2 +1,2 @@
-# adeenazara
-Hi
+# Hi, I'm Adina Zara
+
